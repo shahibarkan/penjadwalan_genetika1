@@ -1,0 +1,1 @@
+# penjadwalan_genetika1
